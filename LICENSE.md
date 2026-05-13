@@ -1,4 +1,4 @@
-#  
+#  vip murderers vs sheriffs 2 Script is the best murderers vs sheriffs 2 Script, featuring no clip and auto-collect. Safe and powerful for all your
 
 
 
